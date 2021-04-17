@@ -8,3 +8,5 @@ Many a great read me have come before this specific beauty.  My goals were to re
 Please enjoy as we watch this glorious badassery:
 
 <a href="https://www.youtube.com/watch?v=TTdAFjJPmug">YAAAS!!!</a>
+
+New 17Apr21
