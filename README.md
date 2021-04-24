@@ -9,6 +9,12 @@ Please enjoy as we watch this glorious badassery:
 
 <a href="https://www.youtube.com/watch?v=TTdAFjJPmug">YAAAS!!!</a>
 
+
+./Journal_Entry/Star_Date_2359/UMI_Apr/Entry:
+
+My goodness, this file has been an adventure.  I had to cut metaphysical grass, beam my way through some knarly twines and crush a nonsensical paradygm.  Please update.  
+
+
 New 17Apr21 - 
 
 GIVEN a webpage meets accessibility standards
